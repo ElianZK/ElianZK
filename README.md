@@ -6,4 +6,4 @@
 
 - I'm here to pusblish my personal projects for companies who want to see them. Actually looking for a job, if you want to see mi personal information i'll link my LinkedIn profile just right down.✍
 
-https://www.linkedin.com/in/elian-hergenrether-8228031a0/
+https://www.linkedin.com/in/elian-hergenrether
